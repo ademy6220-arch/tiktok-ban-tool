@@ -29,3 +29,13 @@ The use of automated tools may violate a platform's terms of service or technica
 
 
 Thanks for the help from https://evilgpt.io/
+
+
+
+
+
+The video shows you how the .exe file works, and it's much easier. Sorry about the bad graphics.
+
+
+
+join my signal group https://signal.group/#CjQKIJnF2mEglz45YSIblbi6gVC_AgnS9gaYI2z6_xmLIquXEhCouKch9BnkUlEXviAwVuSv
